@@ -1,0 +1,1 @@
+this tells everything about streaming exactly like chatgpt
